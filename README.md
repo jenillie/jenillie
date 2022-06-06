@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-## 🎓 I am currently a senior majoring in Finance at National Central University
+## 🎓 I am currently a senior student at NCU
 😊 I have participated in competitions, club, and student association. Through these experiences, I have enhanced my communication skills and the ability to collaborate with a team. During my time joining these events, I utilized what I have accumulated from the book into reality.
 
 | semester  | average scores |
